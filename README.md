@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: contact me on salonidagli2000@gmail.com
 - 😄 Pronouns: Driven,Persistent
 - ⚡ Fun fact: I can go without seeing my phone for a day
--:smile:Linkedin Profile:linkedin.com/in/saloni-dagli-810ba2167
+-->:smile:Linkedin Profile:linkedin.com/in/saloni-dagli-810ba2167
